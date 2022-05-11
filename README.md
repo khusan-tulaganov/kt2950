@@ -6,4 +6,3 @@
 - 📫 How to reach me:[instagram]:https://www.instagram.com/tulaganov93/ [linkedin]:https://linkedin.com/in/khusan
 - 😄 Pronouns: Husan
 - ⚡ Fun fact: Fluent in Russian, Uzbek and English
--->
